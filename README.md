@@ -1,1 +1,1 @@
-# Herkes-i-in-Yapay-Zeka
+# Herkes için Yapay Zeka
