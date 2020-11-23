@@ -1,0 +1,1 @@
+# Herkes-i-in-Yapay-Zeka
